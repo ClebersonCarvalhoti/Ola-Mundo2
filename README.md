@@ -8,3 +8,5 @@
 
 
 Como é bom aprender!
+
+Não posso esquecer de incluir as imagens.
